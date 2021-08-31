@@ -2,8 +2,6 @@
 
 嗷 我们是JP崮山抽象监狱 我是抽象狱友边辉 我是抽象狱友老君 我是抽象狱友老马 我是抽象狱友王一博 我是抽象狱友:fire: 我是抽象狱友🍊 我是抽象狱友🐷 在新的一年 JP抽象监狱祝各位狱友 新年快乐！
 
-<iframe src="//player.bilibili.com/player.html?aid=24153401&bvid=BV1CW411P79v&cid=40479058&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
-
 ---
 
 Ah 你森么意思 你搞森么？
@@ -39,33 +37,3 @@ Hajiyiweic 对不对！
 *不然呢*
 
 ![hUuCvR.jpg](https://z3.ax1x.com/2021/08/31/hUuCvR.jpg)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<iframe 
-    width="100%" 
-    height="450" 
-    src="//player.bilibili.com/player.html?aid=16688970&cid=27215876&page=1" 
-    scrolling="no" 
-    border="0" 
-    frameborder="no" 
-    framespacing="0" 
-    allowfullscreen="true">
-    暂时不支持视频插入。
-</iframe>
