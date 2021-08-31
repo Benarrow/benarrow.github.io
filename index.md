@@ -32,9 +32,5 @@ Hajiyiweic 对不对！
 
 *不然呢*
 
-<iframe height=500 width=500 src="https://imgtu.com/i/hUuCvR">
-
-<iframe height=500 width=500 src="https://z3.ax1x.com/2021/08/31/hUuCvR.jpg">
-
-[![hUuCvR.jpg](https://z3.ax1x.com/2021/08/31/hUuCvR.jpg)](https://imgtu.com/i/hUuCvR)
+![hUuCvR.jpg](https://z3.ax1x.com/2021/08/31/hUuCvR.jpg)
 
