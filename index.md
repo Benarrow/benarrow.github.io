@@ -2,6 +2,8 @@
 
 嗷 我们是JP崮山抽象监狱 我是抽象狱友边辉 我是抽象狱友老君 我是抽象狱友老马 我是抽象狱友王一博 我是抽象狱友![img](C:\Users\ZPSTim\Documents\SLW`Y7C8DV}Q91QC%Q`6HH.png) 我是抽象狱友![img](C:\Users\ZPSTim\Documents\YY7V0_QB_T(D@[)%2[1T${6.png) 在新的一年 JP抽象监狱祝各位狱友新年快乐！
 
+<iframe src="//player.bilibili.com/player.html?aid=24153401&bvid=BV1CW411P79v&cid=40479058&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+
 ---
 
 Ah 你森么意思 你搞森么
@@ -21,8 +23,6 @@ Ah 你森么意思 你搞森么
 收益 啊 百分之 五十六点四九！
 
 Hajiyiweic 对不对！
-
-<iframe height=498 width=510 src="https://video.zhihu.com/video/1235669132890439680?player={&quot;autoplay&quot;:false" frameborder=0 allowfullscreen></iframe>
 
 ---
 
