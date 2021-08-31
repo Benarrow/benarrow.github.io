@@ -37,3 +37,33 @@ Hajiyiweic 对不对！
 *不然呢*
 
 ![hUuCvR.jpg](https://z3.ax1x.com/2021/08/31/hUuCvR.jpg)
+
+
+
+<!DOCTYPE HTML>
+<html>
+    <head>
+    <style type="text/css">
+        .aspect-ratio {
+            position: relative;
+            width: 100%;
+            height: 0;
+            padding-bottom: 75%;
+        }
+    .aspect-ratio iframe {
+        position: absolute;
+        width: 100%;
+        height: 100%;
+        left: 0;
+        top: 0;
+    }
+    </style>   
+    </head>
+    <body>
+        <h1> test </h1>
+        <div class="aspect-ratio" >
+            <iframe src="//player.bilibili.com/player.html?aid=13026578&bvid=BV1nx411p77a&cid=21388432&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+        </div>
+    </body>
+</html>
+
