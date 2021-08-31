@@ -1,20 +1,20 @@
-### <center>JP崮山路抽象监狱</center>
+### <center>JP崮山抽象监狱</center>
 
-嗷 我们是JP崮山抽象监狱 我是抽象狱友边辉 我是抽象狱友老君 我是抽象狱友老马 我是抽象狱友王一博 我是抽象狱友![img](C:\Users\ZPSTim\Documents\SLW`Y7C8DV}Q91QC%Q`6HH.png) 我是抽象狱友![img](C:\Users\ZPSTim\Documents\YY7V0_QB_T(D@[)%2[1T${6.png) 在新的一年 JP抽象监狱祝各位狱友新年快乐！
+嗷 我们是JP崮山抽象监狱 我是抽象狱友边辉 我是抽象狱友老君 我是抽象狱友老马 我是抽象狱友王一博 我是抽象狱友:fire: 我是抽象狱友🍊 我是抽象狱友🐷 在新的一年 JP抽象监狱祝各位狱友 新年快乐！
 
 <iframe src="//player.bilibili.com/player.html?aid=24153401&bvid=BV1CW411P79v&cid=40479058&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
 
 ---
 
-Ah 你森么意思 你搞森么
+Ah 你森么意思 你搞森么？
 
 ---
 
-虞姬是谁
+虞姬是谁？
 
-没有 JK老师加我了
+没有 JK老师加我了.jpg
 
-**你考完了哇**
+**你考完了哇** 屌丝
 
 ---
 
@@ -38,7 +38,34 @@ Hajiyiweic 对不对！
 
 *不然呢*
 
-[<img src="https://z3.ax1x.com/2021/08/31/hUMecd.gif" alt="hUMecd.gif" style="zoom:165%;" />](https://imgtu.com/i/hUMecd)
-
 ![hUuCvR.jpg](https://z3.ax1x.com/2021/08/31/hUuCvR.jpg)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<iframe 
+    width="100%" 
+    height="450" 
+    src="//player.bilibili.com/player.html?aid=16688970&cid=27215876&page=1" 
+    scrolling="no" 
+    border="0" 
+    frameborder="no" 
+    framespacing="0" 
+    allowfullscreen="true">
+    暂时不支持视频插入。
+</iframe>
